@@ -1,0 +1,1 @@
+ilk metot uygulaması pratiği
